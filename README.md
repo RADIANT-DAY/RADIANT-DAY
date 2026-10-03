@@ -1,4 +1,4 @@
-# MEET YOUR CEO
+# MEET THE ANIMATOR
 
 < [@looonac](https://github.com/looonac) [@dimofyyy](https://github.com/@dimofyyy) 3 **my barrier trio**
 
@@ -7,5 +7,4 @@
 
 ^^^ me and oomfs!
 
-Hello! My name is DELMON or CHERON! I'm a Delmon/EN-019 kin, doubles please dni T_T I see myself in Delmon
-more info lateerrrrrr PROSHIP / DARKSHIP HEAVY DNI LEAVE ME ALONE DO NOT INTERACT
+hi :) my name is delmon. or cheron. or whatever you know me as. but preferably delmon or cheron. i'm very fixated on like.. 3 storytime youtubers--don't send genuine haminations hate in my dms it gets annoying asf and if we aren't friends i'll probably ignore you LOL. i'm kinda learning to animate myself 
