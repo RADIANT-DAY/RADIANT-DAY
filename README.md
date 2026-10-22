@@ -7,4 +7,4 @@
 
 ^^^ me and oomfs!
 
-hi :) my name is delmon. or cheron. or whatever you know me as. but preferably delmon or cheron. i'm very fixated on like.. 3 storytime youtubers--don't send genuine haminations hate in my dms it gets annoying asf and if we aren't friends i'll probably ignore you LOL. i'm kinda learning to animate myself 
+hi :) my name is delmon. or cheron. or whatever you know me as. but preferably delmon or cheron. my main interest changes every week just ask me what it is and i'll lyk LOL.
