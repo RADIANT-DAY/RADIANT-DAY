@@ -1,6 +1,6 @@
 # MEET THE ANIMATOR
 
-< [@looonac](https://github.com/looonac) [@dimofyyy](https://github.com/@dimofyyy) 3 **my barrier trio**
+< [@MobIsMissingID](https://github.com/MobisMissingID) [@dimofyyy](https://github.com/dimofyyy) 3 **my barrier trio**
 
 
 ![OOMFSSS](https://files.catbox.moe/90kc63.png)
